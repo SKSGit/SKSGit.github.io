@@ -1,1 +1,0 @@
-# sksahin.com
